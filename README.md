@@ -1,0 +1,2 @@
+# premium-encased-bead-001-encased-bead-clear-wrap-laye
+Tracking encased bead projects across multiple layers and clear wrap techniques is exhausting—you're juggling notes, photos, and inspiration scattered everywhere. The Encased Bead &amp; Clear Wrap Layer Craft Hub consolidates your entire creative process into one organized, visual system.  This Notion template is purpose-built for encased bead crafters
